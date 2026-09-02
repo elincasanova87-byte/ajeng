@@ -1,2 +1,2 @@
 # ajeng
-michaela ajeng felinda
+hobby ku renang,nonton film,dan traveling,suka warna biru
